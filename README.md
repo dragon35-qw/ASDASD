@@ -1,1 +1,1 @@
-# fazla çalmayın döverim
+# bana ait değildir çalmayın
