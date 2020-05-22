@@ -1,0 +1,1 @@
+# fazla çalmayın döverim
